@@ -1,1 +1,1 @@
-Daniel's Resume
+Daniel Belousov's Resume
